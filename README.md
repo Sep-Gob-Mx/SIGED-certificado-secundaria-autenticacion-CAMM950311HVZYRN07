@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CAMM950311HVZYRN07
+CAMM950311HVZYRN07
